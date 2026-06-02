@@ -1,4 +1,4 @@
-# 
+# Exclusivo grid trading bot for futures plantillas para Mac OS | Automático grid trading bot for futures plantillas para PC Windows. Con paneles personalizados y análisis de libro de órdenes — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
